@@ -1,4 +1,4 @@
-# BlumTod
+# BlumToD
 
 AUTO CLAIM FOR BLUM / @blum
 
